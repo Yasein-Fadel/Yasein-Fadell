@@ -1,2 +1,2 @@
 # Yasein-Fadell
-HI, This My Personal Profile
+Hi, This is My Profile
